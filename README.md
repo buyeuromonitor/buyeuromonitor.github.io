@@ -1,2 +1,2 @@
-# Buy Statista Data Reports
-Buy Cheap Statista Data Right Here
+# Buy Euromonitor Data Reports
+Buy Cheap Euromonitor Data Right Here
